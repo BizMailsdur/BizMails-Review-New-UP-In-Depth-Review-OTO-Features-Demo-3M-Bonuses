@@ -3,61 +3,76 @@
 <p data-start="113" data-end="480">In the ultra-competitive, fast-moving world of American entrepreneurship, trust is currency. And if you’re still sending emails from a generic @gmail or @yahoo account, you’re basically burning cash. You may not see it—but your prospects do. Every time they open that inbox and see a random, non-branded email, a silent judgment is made: <em data-start="451" data-end="480">This isn’t a real business.</em></p>
 <p data-start="482" data-end="681">Let’s stop that judgment dead in its tracks. This is your <strong data-start="540" data-end="559">BizMails Review</strong>, and I’m going to show you exactly why this tool isn’t just helpful—it’s non-negotiable for any serious business in 2025.</p>
 
-# 🧠 Conversly AI – FE + OTOs + William’s Exclusive Bonus Pack
+# 📬 BizMails – FE + OTOs + William’s Exclusive Bonus Pack
 
 🔑 **Affiliate ID: 614944 – mobikill2016**  
 🟢 To unlock **William's premium bonuses**, make sure to purchase via the FE link below.
 
 ## ✅ Start Here – Front End Access  
-💬 **Conversly AI [FE]** – *Next-Gen Conversational Marketing AI*  
-👉 `warriorplus[dot]com/o2/a/qsfmnfk/0/g`
+📧 **BizMails FE** – *AI-Powered Cold Email Lead Generation System*  
+🎟 Coupon Code: `BIZMAILS10`  
+👉 `warriorplus[dot]com/o2/a/s1k4fp7/0/g`
 
 ---
 
-## 🚀 OTO 1: Conversly AI Unlimited  
-🔓 Unlock All Features – No Limits  
-💸 $15 Discount  
-👉 `converslyai[dot]live/unlimited/`
+## 🚀 BizMails OTO 1: Pro Version  
+🚀 Advanced Features & More Power  
+💸 $10 Discount  
+👉 `bizmails[dot]live/pro`
 
 ---
 
-## 🚀 OTO 2: Conversly AI DFY  
-🧰 Plug & Play DFY Templates + Campaigns  
-💸 $30 Discount  
-👉 `converslyai[dot]live/dfy/`
+## 🚀 BizMails OTO 2: MAX  
+💥 Unlock MAX Benefits & Opportunities  
+💸 $10 Discount  
+👉 `bizmails[dot]live/max`
 
 ---
 
-## 🚀 OTO 3: Conversly AI Traffic  
-🚦 Flood Your Funnel With Targeted Traffic  
+## 🚀 BizMails OTO 3: Enterprise  
+🏢 Built for High-Volume Email Agencies  
+💸 $10 Discount  
+👉 `bizmails[dot]live/enterprise`
+
+---
+
+## 🚀 BizMails OTO 4: Bizdomains  
+🌐 Domain Tools & Branding Features  
+💸 $10 Discount  
+👉 `bizmails[dot]live/bizdomains`
+
+---
+
+## 🚀 BizMails OTO 5: DFY  
+🛠 Done-For-You Email Systems  
 💸 $20 Discount  
-👉 `converslyai[dot]live/traffic/`
+👉 `bizmails[dot]live/dfy`
 
 ---
 
-## 🚀 OTO 4: Conversly AI Agency  
-🏢 Offer AI Services With Full Agency Rights  
-💸 $80 Discount  
-👉 `converslyai[dot]live/agency/`
+## 🚀 BizMails OTO 6: Agency  
+🏢 Sell as a Full-Blown Agency  
+💸 $20 Discount  
+👉 `bizmails[dot]live/agency`
 
 ---
 
-## 🚀 OTO 5: Conversly AI Reseller  
-🔁 Resell With 100% Commissions  
-💸 $50 Discount  
-👉 `converslyai[dot]live/reseller/`
+## 🚀 BizMails OTO 7: Reseller  
+🔁 Resell With 100% Profit  
+💸 $20 Discount  
+👉 `bizmails[dot]live/reseller`
 
 ---
 
-## 🚀 OTO 6: Conversly AI Whitelabel  
-🎯 Rebrand As Your Own SAAS  
-💸 $250 Discount  
-👉 `converslyai[dot]live/whitelabel/`
+## 🚀 BizMails OTO 8: Whitelabel  
+⚙️ Fully Rebrand BizMails As Your Own  
+💸 $20 Discount  
+👉 `bizmails[dot]live/whitelabel`
 
 ---
 
 ## 🎁 Bonus Page – Claim William’s Special Bonuses  
-➡️ Bonus Page: `williamreviewoto[dot]com/conversly-ai/`
+➡️ Bonus Page: `williamreviewoto[dot]com/bizmails/`
 
 ---
 
@@ -78,6 +93,7 @@
 ---
 
 📝 **NOTE:** Replace `[dot]` with `.` when pasting the links into your browser.
+
 
 <hr data-start="683" data-end="686" />
 
@@ -187,61 +203,76 @@
 
 <hr data-start="6383" data-end="6386" />
 <p data-start="6388" data-end="6514" data-is-last-node="" data-is-only-node=""><em data-start="6388" data-end="6432">Use coupon BIZ30OFF for 30% off right now.</em><br data-start="6432" data-end="6435" />Your brand deserves more than @gmail.<br data-start="6472" data-end="6475" />It’s time to get serious—with BizMails.</p>
-# 🧠 Conversly AI – FE + OTOs + William’s Exclusive Bonus Pack
+# 📬 BizMails – FE + OTOs + William’s Exclusive Bonus Pack
 
 🔑 **Affiliate ID: 614944 – mobikill2016**  
 🟢 To unlock **William's premium bonuses**, make sure to purchase via the FE link below.
 
 ## ✅ Start Here – Front End Access  
-💬 **Conversly AI [FE]** – *Next-Gen Conversational Marketing AI*  
-👉 `warriorplus[dot]com/o2/a/qsfmnfk/0/g`
+📧 **BizMails FE** – *AI-Powered Cold Email Lead Generation System*  
+🎟 Coupon Code: `BIZMAILS10`  
+👉 `warriorplus[dot]com/o2/a/s1k4fp7/0/g`
 
 ---
 
-## 🚀 OTO 1: Conversly AI Unlimited  
-🔓 Unlock All Features – No Limits  
-💸 $15 Discount  
-👉 `converslyai[dot]live/unlimited/`
+## 🚀 BizMails OTO 1: Pro Version  
+🚀 Advanced Features & More Power  
+💸 $10 Discount  
+👉 `bizmails[dot]live/pro`
 
 ---
 
-## 🚀 OTO 2: Conversly AI DFY  
-🧰 Plug & Play DFY Templates + Campaigns  
-💸 $30 Discount  
-👉 `converslyai[dot]live/dfy/`
+## 🚀 BizMails OTO 2: MAX  
+💥 Unlock MAX Benefits & Opportunities  
+💸 $10 Discount  
+👉 `bizmails[dot]live/max`
 
 ---
 
-## 🚀 OTO 3: Conversly AI Traffic  
-🚦 Flood Your Funnel With Targeted Traffic  
+## 🚀 BizMails OTO 3: Enterprise  
+🏢 Built for High-Volume Email Agencies  
+💸 $10 Discount  
+👉 `bizmails[dot]live/enterprise`
+
+---
+
+## 🚀 BizMails OTO 4: Bizdomains  
+🌐 Domain Tools & Branding Features  
+💸 $10 Discount  
+👉 `bizmails[dot]live/bizdomains`
+
+---
+
+## 🚀 BizMails OTO 5: DFY  
+🛠 Done-For-You Email Systems  
 💸 $20 Discount  
-👉 `converslyai[dot]live/traffic/`
+👉 `bizmails[dot]live/dfy`
 
 ---
 
-## 🚀 OTO 4: Conversly AI Agency  
-🏢 Offer AI Services With Full Agency Rights  
-💸 $80 Discount  
-👉 `converslyai[dot]live/agency/`
+## 🚀 BizMails OTO 6: Agency  
+🏢 Sell as a Full-Blown Agency  
+💸 $20 Discount  
+👉 `bizmails[dot]live/agency`
 
 ---
 
-## 🚀 OTO 5: Conversly AI Reseller  
-🔁 Resell With 100% Commissions  
-💸 $50 Discount  
-👉 `converslyai[dot]live/reseller/`
+## 🚀 BizMails OTO 7: Reseller  
+🔁 Resell With 100% Profit  
+💸 $20 Discount  
+👉 `bizmails[dot]live/reseller`
 
 ---
 
-## 🚀 OTO 6: Conversly AI Whitelabel  
-🎯 Rebrand As Your Own SAAS  
-💸 $250 Discount  
-👉 `converslyai[dot]live/whitelabel/`
+## 🚀 BizMails OTO 8: Whitelabel  
+⚙️ Fully Rebrand BizMails As Your Own  
+💸 $20 Discount  
+👉 `bizmails[dot]live/whitelabel`
 
 ---
 
 ## 🎁 Bonus Page – Claim William’s Special Bonuses  
-➡️ Bonus Page: `williamreviewoto[dot]com/conversly-ai/`
+➡️ Bonus Page: `williamreviewoto[dot]com/bizmails/`
 
 ---
 
@@ -262,3 +293,4 @@
 ---
 
 📝 **NOTE:** Replace `[dot]` with `.` when pasting the links into your browser.
+
